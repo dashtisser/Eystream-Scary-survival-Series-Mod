@@ -1,2 +1,2 @@
 # Eystream-Scary-survival-Series-Mod
-In this mod you can use the stuff that is used in the Eystream Scary survival Series
+PLEASE DO NOT DISTRIBUTE THIS TO OTHER PLATFORMS WITHOUT MY PERMISSION! I will know
